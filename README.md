@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @eduardofi
+- 👀 I’m interested in life
